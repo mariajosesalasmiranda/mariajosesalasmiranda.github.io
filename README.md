@@ -1,2 +1,0 @@
-# mariajosesalasmiranda.github.io
-portfolio
